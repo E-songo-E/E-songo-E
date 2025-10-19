@@ -16,5 +16,10 @@ Here are some ideas to get you started:
 -->
 
 
-I'm E-songo-E and i am the creator of DerpoAI! 
-e
+I'm E-songo-E and i am the creator of DerpoAI (AND MANY OTHER THINGS!)! 
+just call me "e"
+I'm learning Rust!!
+I love python. as i say: "Python cures depression".
+Some complicated stuff i'm doing bts...
+i'm a male (if  u didnt already know).
+FUN FACT: When i made MY FIRST ACCOUNT (lost to time...) i didn't even know what github was LOL
